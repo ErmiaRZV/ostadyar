@@ -11,4 +11,4 @@
 - How to reach me : with my
 [linkedin](https://www.linkedin.com/in/ermia-razavi-a611312a3/)
 
-![ostadyar](https://github.com/user-attachments/assets/b5c60d98-adf5-4947-bd04-9d51c5967fc2)
+![ostadyar](https://github.com/user-attachments/assets/d23a2b5e-0b5b-4cbb-a571-bf5dde519f8b)
